@@ -1,6 +1,6 @@
 ---
 Title: Inseparable bros 
-Year: 1993
+Year: 2019
 Genre: Film
 Disease: physical disability, intellectual disability
 ICD: 8B41.0, 6A00.1
@@ -16,7 +16,7 @@ It will be helpful to refer to [article based on the gift of room 7](https://git
 
 
 The music I want to be played at the funeral the most is the national anthem. Because it is music that represents the country I have lived in so far, it is a work that is involved in shaping my identity. Also, I really liked the fact that I expressed my patriotism until I died. 
-[Click here to listen to music](https://youtu.be/l7xjqKNUJmM?si=8d4oWZL5nGgsSuCa)
+[Click here to listen to music](https://youtube.com/watch?v=n6WaTObHRJM&si=OKKZ8FVBJ9YSFgqb)
 # 나의 특별한 형제
 
 *나의 특별한 형제*의 ost인 신하균, 이광수, 이솜 - happy (원곡 MOCCA)는 만약 길을 잃었을 땐 늘 네 곁에는 내가 있어 포기는 마 고개를 들어 등의 긍정적인 메세지를 함유한 가사가 이어지는 노래이다. 이 음악은 작중 2번 영화에 등장하는데, 행복한 일상이 담겨진 영화 중반부와 엔딩 크레딧 부분이다. 영화에 출연한 배우들이 직접 부른 노래이다. 12주차에서 언급되었던 질병을 주제로 한 음악은 종종 직접적인 증상이 아닌 은유와 상징으로 병의 내면을 전달한다는 것처럼, 이는 지적장애를 가진 동구의 순수함을 표현하기 위해 통통 튀는 느낌을 주는 피아노를 포함하여 밝고 경쾌한 멜로디를 형성했다. 이는 장애인들에 대한 사회적 편견이나 현실적인 제약과 대비되는 역설적인 면모 또한 포함하고 있다. 겉으로는 밝은 멜로디를 노래하지만 그 이면에 장애인이 일상에서 겪는 보이지 않는 고통을 증폭하여 들려준다는 점에서, 5주차의 '고통은 확성기다'라는 표현이 떠올려지는 모습이다. 그리고 ‘잘 풀리지 않는 삶 늘 공평하지 않던 맘 넘어지려 할 땐 기운내 노래 불러’ 등의 가사를 사용하며 장애를 가진 이들의 고단함을 숨기기보단 이를 긍정적인 에너지로 승화하려는 의도를 가사에 담고 있다. 이는 장애를 가진 인물들의 어려움과 희망을 동시에 보여주기도 한다. 영화를 보고 이 음악을 들으며 2주차에 언급되었던 '정상성은 누가 정하는가?'라는 질문이 떠올랐다. 동구의 모습 또한 누군가 정한 기준에 의해 정상성 밖으로 벗어나게 된 것이 아닐까? 나아가 이 작품은 음악이 고통을 표현하는 수준을 넘어, 가사와 선율을 통해 고단한 삶을 위로할 수 있다는 가능성을 보여준다. 이는 곧 "음악으로 심적, 물리적 고통을 완화하여 청자에게 안정을 줄 수 있는가?"라는 나의 Future Question으로 나아가는 중요한 탐구의 출발점이 된다.  [음악을 들으려면 여기를 클릭](https://youtu.be/l7xjqKNUJmM?si=8d4oWZL5nGgsSuCa)
